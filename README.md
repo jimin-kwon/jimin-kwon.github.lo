@@ -1,1 +1,1 @@
-# jimin-kwon.github.lo
+# jimin-kwon.github.io
